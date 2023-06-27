@@ -1,7 +1,7 @@
 <div align="center">
 
 
-[Thi Đại Học Toàn Cầu](https://truyenchuhub.com/truyen/Nong-Truong-o-Tuong) - [Top truyện đam mỹ hay nhất](https://truyenchuhub.com/truyen/Thi-dai-Hoc-Toan-Cau)
+[Thi Đại Học Toàn Cầu](https://tutruyenchu.com/truyen/Nong-Truong-o-Tuong) - [Top truyện đam mỹ hay nhất](https://tutruyenchu.com/truyen/Thi-dai-Hoc-Toan-Cau)
 </div>
 
 THI ĐẠI HỌC TOÀN CẦU - 全球高考
